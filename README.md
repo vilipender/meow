@@ -158,25 +158,30 @@ just . A dump of pictures + gifs i like a lot , feel free to take them if you li
 
 
 
-![image](https://64.media.tumblr.com/0e17175b3f600eab664c0a66ea4d8793/752e6ba0c92595f8-15/s100x200/bb73a82c04d97e72fc5877355419731e70eda1e9.pnj) 
-
-![image](https://64.media.tumblr.com/e5bfea93eb4b96b715508aab8a574f71/bf20e6d390cc0ec8-55/s100x200/3736e38eec1e16ab5ef1762d647f45304e517045.pnj) 
-
-![image](https://64.media.tumblr.com/fffe40e9291f6a24ae408bd6abeda1b7/d7d529b67f874c85-34/s100x200/b2b64fd2792024a944f6637f61ff84bfccd6727f.gifv) 
-
-![image](https://64.media.tumblr.com/c12dc92c319e7e217d7549885e626a57/d91ef10a5b0a015c-5d/s100x200/ed5b465915df98788a83daceb80571e59346c010.pnj) 
-
-![image](https://64.media.tumblr.com/bbe21b589cd9c2e08ea30302665fca80/d91ef10a5b0a015c-64/s100x200/d87b74d53d241073d2d39135f16b0f813d902556.gifv) 
-
-![image](https://64.media.tumblr.com/740289df56a813ca60b06809361ee4f4/3cb3c8474c05d418-dc/s100x200/2806abe8f931ab8c193620e4c08486bdce942d02.gifv) 
-
-![image](https://64.media.tumblr.com/f95045dcc7d899b28e133c35483e3758/3cb3c8474c05d418-6d/s100x200/50c5da4578122e73fff0da77c16862daa6880861.gifv) 
+![image23](https://64.media.tumblr.com/0e17175b3f600eab664c0a66ea4d8793/752e6ba0c92595f8-15/s100x200/bb73a82c04d97e72fc5877355419731e70eda1e9.pnj) ![image24](https://64.media.tumblr.com/e5bfea93eb4b96b715508aab8a574f71/bf20e6d390cc0ec8-55/s100x200/3736e38eec1e16ab5ef1762d647f45304e517045.pnj) ![image25](https://64.media.tumblr.com/fffe40e9291f6a24ae408bd6abeda1b7/d7d529b67f874c85-34/s100x200/b2b64fd2792024a944f6637f61ff84bfccd6727f.gifv) ![image26](https://64.media.tumblr.com/c12dc92c319e7e217d7549885e626a57/d91ef10a5b0a015c-5d/s100x200/ed5b465915df98788a83daceb80571e59346c010.pnj) ![image27](https://64.media.tumblr.com/bbe21b589cd9c2e08ea30302665fca80/d91ef10a5b0a015c-64/s100x200/d87b74d53d241073d2d39135f16b0f813d902556.gifv) ![image28](https://64.media.tumblr.com/740289df56a813ca60b06809361ee4f4/3cb3c8474c05d418-dc/s100x200/2806abe8f931ab8c193620e4c08486bdce942d02.gifv) ![image29](https://64.media.tumblr.com/f95045dcc7d899b28e133c35483e3758/3cb3c8474c05d418-6d/s100x200/50c5da4578122e73fff0da77c16862daa6880861.gifv) 
 
 
 
-![image](https://64.media.tumblr.com/379ad0c41c556a71df39e9db759156ba/e9e5eaac84bb2c66-f2/s100x200/d761c9532fba93ae4e619be08f3666852cf6a790.gifv) ![image](https://64.media.tumblr.com/3c7b0d4d7b1b4d6ef21b9f23e7c4f7c7/e16d9c3fd8438e13-ce/s100x200/290bceaa4485b98ddbb5b318043556c2947c8de7.pnj) ![image](https://64.media.tumblr.com/68547ce9a71f6ec597f7cb966fffb301/7c85a8258373f2fe-79/s100x200/2bbf3f584f4c09da82d7a8273b88b8bc03abf000.pnj) ![image](https://64.media.tumblr.com/689184120cb80df0b5adaa117bb63746/7c85a8258373f2fe-9d/s250x400/9984ed34734de77d942d0e25bbc2ad4aefe3e0e3.gifv) ![d41mygo-28e0588f-e6cd-412b-81d5-03285786ff3b](https://github.com/izumisenalover/izumisenalover/assets/129478709/8d9b2703-3930-4281-a81b-34572afb694d)
-![dd7w2ey-b52b1efb-df12-466c-8914-c23850344b79](https://github.com/izumisenalover/izumisenalover/assets/129478709/0e140a8d-0ca5-47e1-a238-d0baf86c2b15) ![da7njhw-d2e39adc-8ba5-4cdf-8245-188d85c71fed](https://github.com/izumisenalover/izumisenalover/assets/129478709/028f423a-f95f-4a96-afdd-c08a974ed612) ![i_love_ferrets_by_wishmasteralchemist_d314ihp-fullview](https://github.com/izumisenalover/izumisenalover/assets/129478709/2a0de3db-9bf8-4ae1-b5ad-d63df3700732) ![ddmb34q-b925c44d-8cc4-43ca-97c6-96a07f712910](https://github.com/izumisenalover/izumisenalover/assets/129478709/7e499c28-dc19-425c-91ed-b816d14da015) ![tumblr_pv7eeegqoA1xbgu08o2_100](https://github.com/izumisenalover/izumisenalover/assets/129478709/98baa252-cfe3-41b8-ad9e-833044943d0e)
-![tumblr_832bc6e07d5f72b9b533fb51bd16265e_3282735c_100](https://github.com/izumisenalover/izumisenalover/assets/129478709/6978727a-dca3-4194-b34e-92c0299396d8) ![](https://64.media.tumblr.com/fc4182de82c0bcf44b0393e6a4333945/tumblr_ptvr3wDWit1xbgu08o9_r1_100.gif) ![](https://y2k.neocities.org/stamps/tumblr_pcagk9LdEg1wpplaao5_100.gif) ![](https://supplies.ju.mp/assets/images/gallery02/4a9775e2_original.gif?v=9163b103) ![](https://supplies.ju.mp/assets/images/gallery01/300d5a12.png?v=9163b103) ![](https://supplies.ju.mp/assets/images/gallery02/e637bbec.png?v=9163b103) ![](https://camo.githubusercontent.com/cdbd8ca130542ebdcb391edd2c03dacee88709c20a2cbedde5f01e9a42dfb869/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f61373734313463376234656666383363396435303635386336363335343139322f396166313065366566353063613935622d64342f73313030783230302f393931346537373361343733336665613762343536393534626634323330643863623462393036342e67696676) ![](https://supplies.ju.mp/assets/images/gallery01/f3f9924f.gif?v=6a50b904) ![](https://camo.githubusercontent.com/f1f64301fd9a5bcedf845f53694769bfa93870958160d174b2ff44a2a8fd18f8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f37376533666630396564363363343434303534383237383037323162613964652f636161383664633666393263346530332d61642f73313030783230302f386234366130616235613332386464343836376538343739626261356132346132656538353864382e706e6a) ![](https://media.discordapp.net/attachments/734803055283011754/1214522066100027402/IMG_5247.gif?ex=65f96ad1&is=65e6f5d1&hm=bbf9c9472c73bcecc82a23f798ffffe4a2e864680e2017b4ce792d16ff0856c2&=) ![
+![image30](https://64.media.tumblr.com/379ad0c41c556a71df39e9db759156ba/e9e5eaac84bb2c66-f2/s100x200/d761c9532fba93ae4e619be08f3666852cf6a790.gifv) ![image31](https://64.media.tumblr.com/3c7b0d4d7b1b4d6ef21b9f23e7c4f7c7/e16d9c3fd8438e13-ce/s100x200/290bceaa4485b98ddbb5b318043556c2947c8de7.pnj) ![image32](https://64.media.tumblr.com/68547ce9a71f6ec597f7cb966fffb301/7c85a8258373f2fe-79/s100x200/2bbf3f584f4c09da82d7a8273b88b8bc03abf000.pnj) ![image33](https://64.media.tumblr.com/689184120cb80df0b5adaa117bb63746/7c85a8258373f2fe-9d/s250x400/9984ed34734de77d942d0e25bbc2ad4aefe3e0e3.gifv) ![stamp34](https://github.com/izumisenalover/izumisenalover/assets/129478709/8d9b2703-3930-4281-a81b-34572afb694d)![stamp35](https://github.com/izumisenalover/izumisenalover/assets/129478709/028f423a-f95f-4a96-afdd-c08a974ed612) ![i_love_ferrets_by_wishmasteralchemist_d314ihp-fullview stamp36](https://github.com/izumisenalover/izumisenalover/assets/129478709/2a0de3db-9bf8-4ae1-b5ad-d63df3700732) 
+
+
+![stamp37](https://github.com/izumisenalover/izumisenalover/assets/129478709/7e499c28-dc19-425c-91ed-b816d14da015) 
+
+
+![stamp38](https://64.media.tumblr.com/fc4182de82c0bcf44b0393e6a4333945/tumblr_ptvr3wDWit1xbgu08o9_r1_100.gif) ![](https://y2k.neocities.org/stamps/tumblr_pcagk9LdEg1wpplaao5_100.gif) 
+
+![stamp39](https://supplies.ju.mp/assets/images/gallery02/4a9775e2_original.gif?v=9163b103) ![](https://supplies.ju.mp/assets/images/gallery01/300d5a12.png?v=9163b103) 
+
+![stamp40](https://supplies.ju.mp/assets/images/gallery02/e637bbec.png?v=9163b103) 
+
+![stamp41](https://camo.githubusercontent.com/cdbd8ca130542ebdcb391edd2c03dacee88709c20a2cbedde5f01e9a42dfb869/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f61373734313463376234656666383363396435303635386336363335343139322f396166313065366566353063613935622d64342f73313030783230302f393931346537373361343733336665613762343536393534626634323330643863623462393036342e67696676) 
+
+![](https://supplies.ju.mp/assets/images/gallery01/f3f9924f.gif?v=6a50b904) 
+
+![](https://camo.githubusercontent.com/f1f64301fd9a5bcedf845f53694769bfa93870958160d174b2ff44a2a8fd18f8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f37376533666630396564363363343434303534383237383037323162613964652f636161383664633666393263346530332d61642f73313030783230302f386234366130616235613332386464343836376538343739626261356132346132656538353864382e706e6a) 
+
+
+![](https://media.discordapp.net/attachments/734803055283011754/1214522066100027402/IMG_5247.gif?ex=65f96ad1&is=65e6f5d1&hm=bbf9c9472c73bcecc82a23f798ffffe4a2e864680e2017b4ce792d16ff0856c2&=) ![
 ](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1cfc98d8-534a-4950-93d7-df92390e3212/d9tkc6u-662455df-f016-4861-9465-7fd7b0a63c20.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFjZmM5OGQ4LTUzNGEtNDk1MC05M2Q3LWRmOTIzOTBlMzIxMlwvZDl0a2M2dS02NjI0NTVkZi1mMDE2LTQ4NjEtOTQ2NS03ZmQ3YjBhNjNjMjAucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.5zfxZTMEAjLvuRsFEv120QE7muwhtds5zhE1hmeo5sE) ![
 ](https://supplies.ju.mp/assets/images/gallery02/57d75915.gif?v=6a50b904) ![
 ](https://supplies.ju.mp/assets/images/gallery01/55c8ab27.png?v=6a50b904) ![
